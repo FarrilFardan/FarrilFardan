@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FarrilFardan
+- 👀 I’m interested in Big Data
+- 🌱 I’m currently learning Statistics 
+- 💞️ I’m looking to collaborate with anyone
